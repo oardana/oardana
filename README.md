@@ -1,4 +1,4 @@
-### Hi there 👋
+### Susah ya apa apa harus nyari sendiri udah kaya penemu :)
 
 <!--
 **oardana/oardana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
